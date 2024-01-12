@@ -1,1 +1,1 @@
-### ⚡ Fun fact: water is wet
+### ⚡ Fun fact: water is dry
