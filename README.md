@@ -1,1 +1,1 @@
-### ⚡ Fun fact: water is dry
+### ⚡ Fun fact: Isn't always fun
